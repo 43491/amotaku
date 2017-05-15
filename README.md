@@ -1,0 +1,2 @@
+# amotaku
+FITSTUDENT
